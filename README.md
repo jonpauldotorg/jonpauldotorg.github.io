@@ -1,2 +1,2 @@
 # jonpauldotorg.github.io
-blog
+this is what my middle finger looks like
