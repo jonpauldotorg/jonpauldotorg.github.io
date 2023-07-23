@@ -1,0 +1,2 @@
+# jonpauldotorg.github.io
+blog
